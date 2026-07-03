@@ -1,0 +1,1 @@
+To help Toad survive this nightmare press the space key to jump on the evil ghosts. You have 4 lives on the top left, if the ghost hits you you lose one. Enjoy the gruesome Toad background I found and combined myself and the hot beat music too!
